@@ -3,4 +3,4 @@ John Glen Barcelona
 
 My favorite team in NBA is Golden State Warriors 
 
-![Warriors big 3](https://www.google.com/url?sa=i&url=https%3A%2F%2Fclutchpoints.com%2Fwarriors-6-must-watch-games-on-2023-24-nba-schedule-ranked&psig=AOvVaw369Kn114SsHFRlL9ln-V-S&ust=1701846958081000&source=images&cd=vfe&opi=89978449&ved=0CBAQjRxqFwoTCIiwmcGp-YIDFQAAAAAdAAAAABAE)
+![Warriors big 3](https://clutchpoints.com/_next/image?url=https%3A%2F%2Fwp.clutchpoints.com%2Fwp-content%2Fuploads%2F2023%2F08%2Fwarriors-x-must-watch-games-on-2023-24-nba-schedule-ranked.jpeg&w=1920&q=75)
